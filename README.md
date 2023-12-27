@@ -1,4 +1,4 @@
-- Hi, I’m Misscake or Chocxi :3
+- Hi, I’m Misscake or Chocx :3
 - Aroace `(But I'm on a relationship!)`
 - I fcking love **playing viola 🎻**
 *- Esp/Eng*
