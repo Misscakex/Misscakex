@@ -5,18 +5,12 @@
 - **🎂:20/11 ♏**
 - `I'm a teenager`
 - Ecuadorian
-- Intp
+- *Intp*
 - Roblox, Brawl stars player (I don't know how to use any Brawler)
 - **I love toucans!**
 - Lemon demon . Odetari . Jack Stauber
-**- Sensitive (Sometimes) Jealous**
-- My favorite animal is the guppy fish n the toucan
+- *Sensitive (Sometimes) Jealous*
 - ```My favorite color is the turquoise 🐈```
-*- Esp/Eng*
-**- 🎂: 20/11 (♏)**
-`- I'm a teenager!`
-- Roblox, Brawl stars player (I don't know how to use any Brawler)
-- **Sensitive (Sometimes) Jealous**
 - Katana main (Before)
 - *I'm also a Endacopia, Omori , South park fan!*
 - Crymua and Kimdoxito **CANON 🗣️🔥🔥**
